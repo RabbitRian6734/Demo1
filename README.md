@@ -1,3 +1,3 @@
 #demo
 
-GitHub101
+GitHub101 (^_^)
